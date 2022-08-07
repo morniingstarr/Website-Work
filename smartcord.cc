@@ -1,0 +1,1 @@
+https://smartcord.cc
